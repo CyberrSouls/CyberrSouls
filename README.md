@@ -1,4 +1,3 @@
-# bio
 <p align="center">
 wip! :-3 take a gale for your travels
   <p align="center">
