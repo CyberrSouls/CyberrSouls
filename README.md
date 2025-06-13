@@ -15,4 +15,3 @@ she/her . : . eighteen . : . eng / uk
     taken by ml <33
     <p align="center">
      <img width="400" src="https://64.media.tumblr.com/dc9b07bee1cd77378c9c13715d7be176/107110644701e85a-4d/s1280x1920/57384804841fcda60a07ad8cbfe2c03c772f5b8b.pnj" alt="">
- 
