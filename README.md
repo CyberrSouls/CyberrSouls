@@ -18,6 +18,8 @@ she/her . : . eighteen . : . eng / uk
    <p align="center">
    usually offtab ,, c + h is okay unless im with friends! :-P
              <p align="center">
+                    please dni if you're a proshipper, i dont fuck with that shit
+                                                               <p align="center">
    check out my links!! they have everything else on there. (also sign my ata)
                                            <p align="center">
 . : .
