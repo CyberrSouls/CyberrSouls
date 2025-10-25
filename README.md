@@ -1,9 +1,9 @@
 <p align="center">
        <img width="600" src="https://64.media.tumblr.com/1ecf1e0dd526f3b64d01cbf55d980474/1330ef804f594f03-26/s540x810/eddc8a00114654b7a11650c4f2b02e3a41757cb4.gifv" alt="">
 <p align="center">
-seasons don't fear the reaper, nor do the wind, the sun or the rain.
+abra-abracadabra, i wanna reach out and grab ya!
   <p align="center">
-  (we could be like they are.)
+abra-abracadabra, abracadabra!
 <p align="center">
        <img width="800" src="https://64.media.tumblr.com/86622d72f19d0f7e04158a51dcbd1143/d195cd8c0f6b053e-9d/s2048x3072/52292e2c681c644ad02467ae83f740c2bc7e5397.pnj" alt="">
 <p align="center">
