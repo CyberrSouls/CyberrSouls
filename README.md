@@ -10,7 +10,7 @@ abra-abracadabra, abracadabra!
 Cyber . : <img width="25" src="https://64.media.tumblr.com/8d48c7e5a11edec6a9fcaa33aa0f9794/36d545be1ee22b63-be/s500x750/92ae89e156f7edc97939f5142c0b021657c05126.pnj" alt="">
  : . Magisterr
 <p align="center">
-she/her . : . eighteen . : . eng / uk
+she/her . : . nineteen . : . eng / uk
 <p align="center">
     taken by ml <33
     <p align="center">
